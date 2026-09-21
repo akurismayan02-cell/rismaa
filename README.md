@@ -1,2 +1,0 @@
-# rismaa
-gitu aja si
